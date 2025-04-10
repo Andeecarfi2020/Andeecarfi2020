@@ -1,5 +1,5 @@
 # 👋 ¡Hola! Soy Andrés  
-### 🚀 Desarrollador Web | 💻 Estudiante de Programación  
+### 🚀 Desarrollador Web wannabe | 💻 Estudiante de Programación  
 
 
 
